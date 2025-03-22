@@ -3,6 +3,8 @@
   
 *reese's place* 
 
+he / him or any neos
+
 feel free to int, esp. if we have an interest or 2 in common ! 
 
 [*my carrd*](https://evilwizards.carrd.co/) ...
@@ -16,5 +18,7 @@ feel free to int, esp. if we have an interest or 2 in common !
 
 badges found on [this rentry,](https://rentry.org/lavender-buttons) the link to the creator's actual site is broken for me \(⌒_⌒;)
 <br>blinkies found on [this rentry](https://rentry.co/borderblinkies)
-
-<img src="https://files.catbox.moe/6ud8om.gif" alt= "byebye spelled in cookies">
+</div>
+<div align=right>
+<img src="https://files.catbox.moe/242i1b.png" width="170" height="200" alt= "mspaint doodle of my sona paris, he has shaggy hair, square glasses, and is wearing a long robe and a pointy hat.">
+</div>

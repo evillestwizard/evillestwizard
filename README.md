@@ -1,27 +1,27 @@
 <div align=center>
-<img src="https://files.catbox.moe/g36etr.gif" width="180" height="18" alt="star header">
+<img src="https://files.catbox.moe/ua0r8m.png" alt="reese's github"> <br>
+<sup>reese's github</sup>
+<br>
   
-*reese's place* 
+if u see me on pt im likely afk or waiting for smth i like... <br> whisp 2 get my attention, feel free to c + h ^_^
 
-he / him or any neos ..!!
+<img src="https://files.catbox.moe/d3s8px.gif" alt="sparkly purple divider with silver stars on each end">
 
-feel free to int or c+h if you see me around, esp. if we have an interest or 2 in common ^_^ 
-
-[*my carrd*](https://evilwizards.carrd.co/) ...
-[*my atabook*](https://evillestwizard.atabook.org/?page=1)
+<img src="https://files.catbox.moe/u35c9h.gif" alt="star">[*my carrd*](https://evilwizards.carrd.co/) ...  <img src="https://files.catbox.moe/laitdw.gif" alt="star">[*my atabook*](https://evillestwizard.atabook.org/?page=1)
 
 <img src="https://files.catbox.moe/p7eeer.gif" alt="wizard badge"> 
-<img src="https://files.catbox.moe/oyvjf3.gif" alt="yaoi badge"> 
+<img src="https://files.catbox.moe/oyvjf3.gif" alt="yaoi badge"> <img src="https://files.catbox.moe/pqhz90.gif" alt="aquarius badge"> <img src="https://files.catbox.moe/zty6vk.gif" alt="creative badge"> <img src="https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/shinybuttons/zap" alt="zap badge">
 <br>
 <img src="https://files.catbox.moe/2rankr.gif" alt="heavenly blinky">
-<img src="https://files.catbox.moe/vusjy1.gif" alt= "play wild blinky">
+<img src="https://files.catbox.moe/vusjy1.gif" alt= "play wild blinky"> <img src="https://i.postimg.cc/gkxbzw0d/IMG_7033.gif" alt="catch a falling star blinky"> 
 
-badges found on [this rentry,](https://rentry.org/lavender-buttons) the link to the creator's actual site is broken for me \(⌒_⌒;)
-<br>blinkies found on [this rentry](https://rentry.co/borderblinkies)
+badges found on .. [01,](https://rentry.org/lavender-buttons) , [02](https://rentry.org/shinybuttons) , and [03](https://rentry.org/excentrique13)
+<br>blinkies on [01](https://rentry.co/borderblinkies) & [02](https://rentry.co/jaystamp)
 <br>
 
 ![](https://komarev.com/ghpvc/?username=evillestwizard&color=lightgray&label=views+!!+&flat-square)
 </div>
 <div align=right>
-<img src="https://files.catbox.moe/242i1b.png" width="170" height="200" alt= "mspaint doodle of my sona paris, he has shaggy hair, square glasses, and is wearing a long robe and a pointy hat.">
+  v have you seen this man? v <br>
+<img src="https://files.catbox.moe/242i1b.png" width="170" height="210" alt= "mspaint doodle of my sona paris, he has shaggy hair, square glasses, and is wearing a long robe and a pointy hat."> <br>
 </div>

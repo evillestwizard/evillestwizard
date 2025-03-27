@@ -7,7 +7,7 @@ if u see me on pt im likely afk or waiting for smth i like... <br> whisp 2 get m
 
 <img src="https://files.catbox.moe/d3s8px.gif" alt="sparkly purple divider with silver stars on each end">
 
-<img src="https://files.catbox.moe/u35c9h.gif" alt="star">[*my carrd*](https://evilwizards.carrd.co/) ...  <img src="https://files.catbox.moe/laitdw.gif" alt="star">[*my atabook*](https://evillestwizard.atabook.org/?page=1) ... <img src="https://files.catbox.moe/2i9wr5.gif" alt="wings"> [*postknight/kings league shrine* (WIP)](https://rentry.co/prismshrine)
+<img src="https://files.catbox.moe/u35c9h.gif" alt="star">[*my rentry*](https://rentry.co/staves) ...  <img src="https://files.catbox.moe/laitdw.gif" alt="star">[*my atabook*](https://evillestwizard.atabook.org/?page=1) ... <img src="https://files.catbox.moe/2i9wr5.gif" alt="wings"> [*postknight/king's league II shrine* (WIP)](https://rentry.co/prismshrine)
 
 <img src="https://files.catbox.moe/p7eeer.gif" alt="wizard badge"> 
 <img src="https://files.catbox.moe/oyvjf3.gif" alt="yaoi badge"> <img src="https://files.catbox.moe/pqhz90.gif" alt="aquarius badge"> <img src="https://files.catbox.moe/zty6vk.gif" alt="creative badge"> <img src="https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/shinybuttons/zap" alt="zap badge">
